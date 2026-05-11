@@ -686,4 +686,4 @@ MIT — do whatever you want with it. Credit appreciated but not required.
 
 ---
 
-**Built for ABSORA WG. Roast responsibly.** 🧹
+**Built for WG. Roast responsibly.** 🧹
